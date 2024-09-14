@@ -1,0 +1,3 @@
+<p>Get here <em>free Blogger Templates</em> with impressive design, collection of best fully responsive, easy-to-use framework, flexible layout &amp; powerful features. Providing <em>Free Blogger Templates</em> since 2008, we have the biggest collection of <em>Blogspot Templates</em> ✓. We are gonna help you find the perfect Blogger. <em>Blogger Templates</em> daily updates with newly designed <em>free blogger templates</em>. <em>Blog templates</em> with Highly SEO optimized, Responsive Layouts.</p>
+
+<p>Find and <em>download</em> updated professional <em>blogspot templates</em> to perfect your website. Not Buy <em>blogger templates</em> only.</p>
